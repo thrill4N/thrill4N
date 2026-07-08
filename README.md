@@ -40,7 +40,7 @@
 
 - 📄 Know about my experiences [https://thrill4n.github.io/Virtual-CV-portfolio-Nkululeko-/](https://thrill4n.github.io/Virtual-CV-portfolio-Nkululeko-/)
 
-- ⚡ Fun fact **I think I can dance**
+- ⚡ Fun fact **I can play basketball**
 
 
 ###
